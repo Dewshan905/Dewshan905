@@ -41,4 +41,4 @@ To become a professional Software Engineer and build impactful software systems.
 
 ## 📫 Connect with Me
 
-* LinkedIn: (add your link here soon)
+* LinkedIn: ([add your link here soon](https://www.linkedin.com/in/maleesha-dewshan-945873370/))
